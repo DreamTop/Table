@@ -1,1 +1,1 @@
-# Table
+# Table of Sonic Characters
